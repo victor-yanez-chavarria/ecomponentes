@@ -1,1 +1,1 @@
-Se realizo de Manera Individual!
+Trabajo realizado de manera individual
